@@ -1,2 +1,0 @@
-# bachelorthesis-public
-# bachelorthesis-public
